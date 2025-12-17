@@ -1,7 +1,9 @@
 
 # Why this website?
 
-Since 2022 Europe has been going through one the most violent and lethal armed conflicts since the second World War. Received opinion has it that this war was unprovoked, and that Russia must and can be defeated. There are numerous important intellectuals and thinkers, however, who do not think history started in 2022, but well before that, and that a proper consideration of historical context should lead to a re-evaluation of that rather simplistic picture. This website aims to present an overview of these dissident voices. There is no exaggeration involved in calling them dissident. No mainstream medium ever interviews one of these voices, invites them for an opinion piece, gives them a platform, or allows them to be heard in any way, shape, or form. This stifling intellectual climate is one of the most astounding things I have ever come across, and I struggle to come to grips with it. [Thomas Fazi](https://www.thomasfazi.com/) has devoted some [interesting reflections](https://www.thomasfazi.com/p/the-wests-century-long-war-against-cc1) to this question, where he sees the present war as the continuation of a centuries-long war of the West against Russia. There is obviously much more to say about this question
+Since 2022 Europe has been going through one the most violent and lethal armed conflicts since the second World War. Received opinion has it that this war was unprovoked, and that Russia must and can be defeated. There are numerous important intellectuals and thinkers, however, who do not think history started in 2022, but well before that, and that a proper consideration of historical context should lead to a re-evaluation of that rather simplistic picture. This website aims to present an overview of these dissident voices. There is no exaggeration involved in calling them dissident. No mainstream medium ever interviews one of these voices, invites them for an opinion piece, gives them a platform, or allows them to be heard in any way, shape, or form. This stifling intellectual climate is one of the most astounding things I have ever come across, and I struggle to come to grips with it. [Thomas Fazi](https://www.thomasfazi.com/) has devoted some [interesting reflections](https://www.thomasfazi.com/p/the-wests-century-long-war-against-cc1) to this question, where he sees the present war as the continuation of a centuries-long war of the West against Russia. There is obviously much more to say about this question, but that is for another time. 
+
+The sources I list below are the ones I have been consulting on a regular basis over the past years, and that have been able to engage my continued attention. Others have fallen by the wayside, either because I stopped taking them seriously, or because they do not add sufficient novel perspective over and above the ones already read, or simply because I find the style of writing not engaging.
 
 #  Websites and blogs
 
@@ -14,10 +16,12 @@ French historian and social anthropologist. Wrote *La défaite de l'Occident*, w
 
 Blog by a German by the name of Bernhard, who appears to be knowledgeable about  military issues. He reads the international press and reads it well. 
 
-
 ## [Naked Capitalism](https://nakedcapitalism.com)
 
 Website run by Yves Smith, a pseudonym for Susan Webber, an experienced high-level professional of the financial services sector. She wrote a book about the 2008 financial crisis, *ECONned: How Unenlightened Self Interest Undermined Democracy and Corrupted Capitalism*, whose title speaks for itself. Several authors write for the site, but her own pieces are very sharp and to the point.
+
+## [Craig Murray](https://www.craigmurray.org.uk/)
+
 
 ## [Dances with Bears](https://johnhelmer.net/)
 
