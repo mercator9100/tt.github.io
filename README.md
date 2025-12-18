@@ -18,7 +18,7 @@ Blog by a German by the name of Bernhard, who appears to be knowledgeable about 
 
 ## [Naked Capitalism](https://nakedcapitalism.com)
 
-Website run by Yves Smith, a pseudonym for Susan Webber, an experienced high-level professional of the financial services sector. She wrote a book about the 2008 financial crisis, *ECONned: How Unenlightened Self Interest Undermined Democracy and Corrupted Capitalism*, whose title speaks for itself. Several authors write for the site, but her own pieces are very sharp and to the point.
+Website run by Yves Smith, a pseudonym for Susan Webber, an experienced high-level professional of the financial services sector. She wrote a book about the 2008 financial crisis, whose title speaks for itself: *ECONned: How Unenlightened Self Interest Undermined Democracy and Corrupted Capitalism*. Several authors write for the site, but her own pieces are very sharp and to the point.
 
 ## [Craig Murray](https://www.craigmurray.org.uk/)
 
