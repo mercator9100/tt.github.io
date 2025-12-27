@@ -12,7 +12,7 @@ I do my best not to live in a bubble. I begin every day by reading a mainstream 
 
 A consequence of this is that there is no real desire or intellectual effort understand the Russian perspective. The only Russians you will ever hear about in Western media are Putin haters. I do not think this contributes to our understanding of the Russian position, and as long as we refuse to see the Russian perspective, we are bound to either be caught up in an endless confrontation, or worse, suffer defeat. On top of that, as a European, I think it is in our best interest to develop good relations with Russia, at the economic, military, and cultural level. In fact, the current situation is one where Europe's alleged ally, the US, is contributing to Europe's economic downfall, among other things by cutting us off from cheap Russian energy. 
 
-It is my belief that Europe stands to gain a great deal more from an alliance with Russia than one with the US. In fact, such a strategic shift of Europe toward Russia and away from the US occurred in the early 2000s under Jacques Chirac in France and Gerhard Schröder in Germany. It was the time of France's and Germany's opposition to particpation in the second Gulf War, and it was underpinned by an economic project of peacefule cooperation that was based on German technology and manufacturing, cheap Russian energy (epitomised in the Nordstream I and II projects), and Chinese markets. The problem was that it was not underpinned by military autonomy, and since then, the US has decisively and successfully moved against this Eurasian cooperation (see the Nord Stream II bombing, which, according to Seymour Hersh, was carried out by US secret services--another story you will not read about in Westerm media).
+It is my belief that Europe stands to gain a great deal more from an alliance with Russia than one with the US. In fact, such a strategic shift of Europe toward Russia and away from the US occurred in the early 2000s under Jacques Chirac in France and Gerhard Schröder in Germany. It was the time of France's and Germany's opposition to particpation in the second Gulf War, and it was underpinned by an economic project of peacefule cooperation that was based on German technology and manufacturing, cheap Russian energy (epitomised in the Nordstream I and II projects), and Chinese markets. The problem was that it was not underpinned by military autonomy, and since then, the US has decisively and successfully moved against this Eurasian cooperation (see the Nord Stream II bombing, which, according to Seymour Hersh, [was carried out by US secret services](https://seymourhersh.substack.com/p/how-america-took-out-the-nord-stream)--another story you will not read about in Westerm media).
 
 
 # [Emmanuel Todd](https://emmanueltodd.substack.com/)
@@ -39,6 +39,8 @@ Blog by John Helmer, an Australian national who describes himself as the longest
 ## [Trying to Understand the World](https://aurelien2022.substack.com/)
 
 Blog by Aurelien, whose identity is undisclosed, but who appears to have been raised in Great Britain, and to have spent a great part of his life in France, either in high-level French government circles, or some high European administration or body. He writes lengthy pieces, some of which go nowhere, while others always tell you something interesting about the inside story behind recent historical events.
+
+## [Max Blumenthal]()
 
 ## [Chris Hedges](https://chrishedges.substack.com/)
 
